@@ -1,0 +1,2 @@
+# fantastic-
+cursor mágico
